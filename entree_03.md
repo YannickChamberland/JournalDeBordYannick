@@ -2,7 +2,7 @@
 ## Plan de carrière
 
 ### Présentation
-Je m'appelle Yannick j'ai 18 ans, je joue au jeux vidéos au quotidien que ce soit le jour la nuit avant l'école après l'école ect et je vais me dirigez vers le domaine des jeux vidéos pour mon future métier. 
+Je m'appelle Yannick j'ai 18 ans, je joue au jeux vidéos au quotidien que ce soit le jour la nuit avant l'école après l'école ect et je vais me dirigez vers le domaine des jeux vidéos pour mon future métier. Avant je trouvais que la matière en cours de web était compliquée et intimidant mais en ce moment, je trouve ça assez simple quand on comprend la matière. 
 
 ### Intérêts dans le domaine
 Je suis très intéresser par ce domaine car je veux me plonger dans l'informatique, l'animation, l'audio, le multimédia ect. 
