@@ -14,7 +14,7 @@ Concepteur de jeux vidéos, games designer. Animateur (2D/3D)
 L'entreprise que je m'identifie avec est l'entreprise insomniac games parce que je suis fan des jeux vidéos et je suis très mysterieux je ne devoile pas tout mes projets je prend mon temps à révéler ce que je travaille sur. 
 
 ### Dans 5 ans
-Je me vois dans ma propre maison avec le travail qui me convient le plus. Une vie balancer avec le fun et le travail, pouvoir manger le lendemain. 
+Je me vois dans ma propre maison avec le travail qui me convient le plus (jeux vidéos ou animation/cinéma). Une vie balancer avec le fun et le travail, pouvoir manger le lendemain. 
 
 ### Projets
 Un de mes projets serait de faire sois un mini film, clip audio ou un jeux vidéo parce que depuis que j'ai fait un mini court métrage en secondaire 5 j'ai trouver ça super amusant et surtout à refaire.  
